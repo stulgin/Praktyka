@@ -1,3 +1,0 @@
-# Praktyka
-
-I love tomato!
